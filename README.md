@@ -13,8 +13,8 @@
 ---
 
 ### 🔗 Connect with me:
-[LinkedIn](www.linkedin.com/in/bhoomika-r-br615)
-[Email](bhoomikarangegowda@gmail.com)
+www.linkedin.com/in/bhoomika-r-br615
+bhoomikarangegowda@gmail.com
 
 ---
 
